@@ -1,16 +1,17 @@
-## Hi there 👋
+<div align="center">
+  <p><i>“I don't mind taking risks to lend you a hand..”</i></p>
+  <img src="https://github.com/user-attachments/assets/906d5438-4b32-4380-9b5a-e1719b3c4f23" width="420" style="border-radius: 20px; box-shadow: 0 0 25px rgba(255,255,255,0.15);" />
+</div>
 
-<!--
-**MalipoKN/MalipoKN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+<p align="center">
+.・。
+.・゜✭・.・✫・゜・。.
+</p>
+
+<div align="center">
+  <img src="https://komarev.com/ghpvc/?username=MalipoKN&color=4da768&abbreviated=true&label=Hunters&style=plastic" alt="Profile views counter" />
+</div>
