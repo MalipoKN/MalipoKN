@@ -13,5 +13,15 @@
 </p>
 
 <div align="center">
+  <p><i>"Kinich/Rae"</i></p>
+  <p><i>MINOR. 18^ please do not interact unless I make exceptions.</i></p>
+  <p><i>Strictly no copying, be original hun.</i></p>
+
+<p align="center">
+.・。
+.・゜✭・.・✫・゜・。.
+</p>
+
+<div align="center">
   <img src="https://komarev.com/ghpvc/?username=MalipoKN&color=4da768&abbreviated=true&label=Hunters&style=plastic" alt="Profile views counter" />
 </div>
