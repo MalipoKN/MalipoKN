@@ -13,7 +13,7 @@
 </p>
 
 <div align="center">
-  <p><i>"Kinich/Rae"</i></p>
+  <p><i>"Kinich/Yuno °°° He/him"</i></p>
   <p><i>MINOR. 18^ please do not interact unless I make exceptions.</i></p>
   <p><i>Strictly no copying, be original hun.</i></p>
 
