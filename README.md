@@ -16,8 +16,8 @@
   <p><i>"Yuno °°° He/him"</i></p>
   <p><i>MINOR. 18^ please do not interact unless I make exceptions.</i></p>
   <p><i>Strictly no copying or colorpicking. Friends/close friends are NOT an exception.</i></p>
-  <p><i> .</i></p>
-<p align="center">
+ <a href="https://kinik.atabook.org/">atabook</a>
+
 .・。
 .・゜✭・.・✫・゜・。.
 </p>
